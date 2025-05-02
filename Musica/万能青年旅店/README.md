@@ -14,7 +14,7 @@
 
 
 
-**万能青年旅店**，是中国[河北](https://zh.wikipedia.org/wiki/河北)[石家庄](https://zh.wikipedia.org/wiki/石家庄)的一支[独立摇滚](https://zh.wikipedia.org/wiki/独立摇滚)乐队，主要由董亚千、史立、姬赓和冯江等多名成员组成，其成员流动性较大。乐队成立时叫做** The Nico**，在 2002 年时更改为现名称<sup>[[1]](https://zh.wikipedia.org/wiki/万能青年旅店#cite_note-1)</sup>。2010 年出版首张同名专辑《[万能青年旅店](https://zh.wikipedia.org/wiki/万能青年旅店_(专辑))》。时隔十年后，在2020年出版第二张专辑《[冀西南林路行](https://zh.wikipedia.org/wiki/冀西南林路行)》。
+**万能青年旅店**，是中国[河北](https://zh.wikipedia.org/wiki/河北)[石家庄](https://zh.wikipedia.org/wiki/石家庄)的一支[独立摇滚](https://zh.wikipedia.org/wiki/独立摇滚)乐队，主要由董亚千、史立、姬赓和冯江等多名成员组成，其成员流动性较大。乐队成立时叫做 **The Nico**，在 2002 年时更改为现名称<sup>[[1]](https://zh.wikipedia.org/wiki/万能青年旅店#cite_note-1)</sup>。2010 年出版首张同名专辑《[万能青年旅店](https://zh.wikipedia.org/wiki/万能青年旅店_(专辑))》。时隔十年后，在2020年出版第二张专辑《[冀西南林路行](https://zh.wikipedia.org/wiki/冀西南林路行)》。
 
 ## 音乐作品
 
