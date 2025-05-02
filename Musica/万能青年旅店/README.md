@@ -16,6 +16,19 @@
 
 **万能青年旅店**，是中国[河北](https://zh.wikipedia.org/wiki/河北)[石家庄](https://zh.wikipedia.org/wiki/石家庄)的一支[独立摇滚](https://zh.wikipedia.org/wiki/独立摇滚)乐队，主要由董亚千、史立、姬赓和冯江等多名成员组成，其成员流动性较大。乐队成立时叫做 **The Nico**，在 2002 年时更改为现名称<sup>[[1]](https://zh.wikipedia.org/wiki/万能青年旅店#cite_note-1)</sup>。2010 年出版首张同名专辑《[万能青年旅店](https://zh.wikipedia.org/wiki/万能青年旅店_(专辑))》。时隔十年后，在2020年出版第二张专辑《[冀西南林路行](https://zh.wikipedia.org/wiki/冀西南林路行)》。
 
+| 万能青年旅店 |                   Omnipotent Youth Society                   |
+| :----------: | :----------------------------------------------------------: |
+|     乐队     |                                                              |
+|    英文名    |                   Omnipotent Youth Society                   |
+|     别名     |                           The Nico                           |
+|     国籍     |                        中华人民共和国                        |
+|   音乐类型   | [摇滚](https://zh.wikipedia.org/wiki/摇滚乐)[另类摇滚](https://zh.wikipedia.org/wiki/另類搖滾)[独立摇滚](https://zh.wikipedia.org/wiki/独立摇滚)[民谣摇滚](https://zh.wikipedia.org/wiki/民谣摇滚) |
+|   演奏乐器   |     爵士鼓、小号、贝司、吉他、萨克斯、提琴、长笛、单簧管     |
+|   出道地点   | [中华人民共和国](https://zh.wikipedia.org/wiki/中华人民共和国)[河北省](https://zh.wikipedia.org/wiki/河北省)[石家庄市](https://zh.wikipedia.org/wiki/石家庄市) |
+|   活跃年代   |                          1996年至今                          |
+|   现任成员   | 董亚千（主唱／吉他／曼陀铃） 姬赓（贝斯） 史立（小号／长笛／次中音号） 苏雷（吉他／曼陀铃） 冯江（鼓） 李增辉（中音萨克斯） 赵路（次中音萨克斯） 冯玉良（次中音萨克斯） 苗政（上低音萨克斯） 刘逸斌（中提琴／曼陀铃） 刘阔（小提琴） 郑皓荣（钢琴） |
+|  已离开成员  | 杨友耕（鼓） 杨旭（萨克斯／单簧管） 张培栋（鼓） 荀亮（鼓） 崔旭东（吉他） 张超（鼓） 吕聪（大提琴） 鲁轶（大提琴） |
+
 ## 音乐作品
 
 ### 专辑
