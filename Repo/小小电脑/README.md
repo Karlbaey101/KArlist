@@ -19,6 +19,8 @@ Click-to-run Debian Bookworm XFCE/LXQt/... on Android for Chinese users, with th
 
 - 可方便地改变屏幕缩放，不用担心屏幕过大或过小
 
+[![1](https://github.com/Cateners/tiny_computer/raw/master/readme/img3.gif)](https://github.com/Cateners/tiny_computer/blob/master/readme/img3.gif)
+
 - 便捷访问设备文件，或通过设备 SAF 访问软件文件
 
 [![1](https://github.com/Cateners/tiny_computer/raw/master/readme/img4.png)](https://github.com/Cateners/tiny_computer/blob/master/readme/img4.png)
