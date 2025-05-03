@@ -1,3 +1,6 @@
+<img src="https://i.postimg.cc/GpXJKWM5/109951163201393179.jpg" alt="1" style="zoom:200%;" />
+<img src="https://i.postimg.cc/V659VKpL/HD-The-Beatles-Yellow-Submarine.jpg" alt="2" style="zoom:200%;" />
+
 **黄色潜水艇**（英语：**Yellow Submarine**）是[英国](https://zh.wikipedia.org/wiki/英国)乐队[披头士](https://zh.wikipedia.org/wiki/披头士)的第十张录音室专辑。由[苹果唱片](https://zh.wikipedia.org/wiki/苹果唱片)在1969年1月17日于[英国](https://zh.wikipedia.org/wiki/英国)发行，此专辑作为同名电影[黄色潜水艇](https://zh.wikipedia.org/wiki/黄色潜水艇_(电影))原声带发行，电影在专辑发行前7个月在[英国](https://zh.wikipedia.org/wiki/英国)首映。
 
 ## 内容
