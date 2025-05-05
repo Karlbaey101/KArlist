@@ -1,3 +1,5 @@
+<img src="https://i.postimg.cc/x8ybcSr1/109951165180340452.jpg" alt="a" style="zoom:200%;" />
+
 《**盗作**》（日语：盗作）是[Yorushika](https://zh.wikipedia.org/wiki/Yorushika)的第三张[完整专辑](https://zh.wikipedia.org/wiki/音樂專輯)，2020年7月29日由[Universal J](https://zh.wikipedia.org/wiki/環球音樂_(日本))发行。
 
 这张专辑和前作《[所以我放弃了音乐](https://zh.wikipedia.org/wiki/所以我放棄了音樂)》（だから仆は音楽を辞めた）和《Elma》（エルマ）一样为[概念专辑](https://zh.wikipedia.org/wiki/概念專輯)，不同于前两张专辑围绕着Elma和Elmy的故事，这张专辑是围绕着主人公——“剽窃音乐的男人”和他的破坏冲动展开的。乐队制作人兼吉他手[n-buna](https://zh.wikipedia.org/wiki/N-buna)全程参与了全专共14首歌曲的词曲创作和制作。
